@@ -15,4 +15,20 @@ Hello my name is Xavier Alexander M Orense, I am 15 years old I live in Naga cit
  • eating
  
  # My favorites
-
+ • my favorite food is Fried chicken
+ 
+ • my favorite dessert is ice cream
+ 
+ • my favorite vegetable is eggplant with egg sometime with soysause
+ 
+ • my favorite mobile game is Call of duty mobile
+ 
+ • my favorite pc game is Roblox
+ 
+ • 
+	
+	
+	
+	
+	
+	
