@@ -4,28 +4,28 @@
 Hello my name is Xavier Alexander M Orense, I am 15 years old I live in Naga city Bicol in Philippines
 
 # My Hobbies
- • playing basketball with my friends
+ • Playing basketball with my friends
  
- • playing video games in my pc and phone
+ • Playing video games in my pc and phone
  
- • walking with my friends outside
+ • Walking with my friends outside
 	
- • sleeping
+ • Sleeping
  
- • eating
+ • Eating
  
  # My favorites
  • my favorite food is Fried chicken
  
- • my favorite dessert is ice cream
+ • My favorite dessert is ice cream
  
- • my favorite vegetable is eggplant with egg sometime with soysause
+ • My favorite vegetable is eggplant with egg sometime with soysause
  
- • my favorite mobile game is Call of duty mobile
+ • My favorite mobile game is Call of duty mobile
  
- • my favorite pc game is Roblox
+ • My favorite pc game is Roblox
  
- • 
+ • My favorite color is blue
 	
 	
 	
