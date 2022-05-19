@@ -10,5 +10,9 @@ Hello my name is Xavier Alexander M Orense, I am 15 years old I live in Naga cit
  
  • walking with my friends outside
 	
- • 
+ • sleeping
+ 
+ • eating
+ 
+ # My favorites
 
